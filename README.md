@@ -1,4 +1,4 @@
-[![MasterHead](https://media.licdn.com/dms/image/D5616AQH_QH0lWQ6JIA/profile-displaybackgroundimage-shrink_350_1400/0/1678771557113?e=1703116800&v=beta&t=zwnPFW2dWYuWnCXQuQVk4U2K24EXuNejcmuyLOCsBz0)](https://rishavchanda.io)
+[![MasterHead]([https://media.licdn.com/dms/image/D5616AQH_QH0lWQ6JIA/profile-displaybackgroundimage-shrink_350_1400/0/1678771557113?e=1703116800&v=beta&t=zwnPFW2dWYuWnCXQuQVk4U2K24EXuNejcmuyLOCsBz0](https://media.licdn.com/dms/image/D4E16AQErOegXvX7E5g/profile-displaybackgroundimage-shrink_350_1400/0/1678776341568?e=1703116800&v=beta&t=r87ZZvfjXAs1rzUOasyfXE4g2Car2DH6EJ9elD4Vbys))](https://rishavchanda.io)
 <h1 align="center">Reinhart Nanquil</h1>
 
 <p align="center">
